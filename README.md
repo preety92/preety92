@@ -1,3 +1,4 @@
+![logo](https://github.com/preety92/preety92/blob/main/5%20Best%20Coding%20Programs%20for%20Aspiring%20Programmers1650304687858345.avif)
 <h1 align="center">Hi 👋, I'm Preety Thakur</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 
