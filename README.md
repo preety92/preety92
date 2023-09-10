@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **work.preetythakur@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fJqW2Q-CGYCSkhIfxaZuFM5AoPmI74pt/view?usp=sharing](https://drive.google.com/file/d/1fJqW2Q-CGYCSkhIfxaZuFM5AoPmI74pt/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1mVOsVofEr4lZIqKmVo99QDEZ0iBcSFvQ/view?usp=sharing](https://drive.google.com/file/d/1mVOsVofEr4lZIqKmVo99QDEZ0iBcSFvQ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
